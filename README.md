@@ -14,6 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+**放て！心に刻んだ夢を，未来さえ置き去りにして。**  
+**释放吧！为了铭刻于心的梦想，即便是未来也可弃之不顾。**  
+**¡Dispara! Dejo atrás el futuro para el sueño grabado en mi corazón.**  
+
 | when chance strikes | fripSide / Nanjō Yoshino |
 |--|--|
 |夜明けゆく街で そっと目を閉じる 静寂のなか 君を想う|在迎来黎明的街道 悄然闭上双眼 在寂静中 思念着你|
